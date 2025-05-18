@@ -4,5 +4,5 @@ spacedogs + dogsdogs + roardogs + prince charmont x gellert grindelwald glazer e
 <p align="center" width="100%"><a href=https://spacedogs.atabook.org>atabook</a>
 <p align="center" width="100%"><a href=https://pronouns.cc/@hanniballecter>prns cc</a>
 
-  
-  [![IMG-2770.jpg](https://i.postimg.cc/zvr492KH/IMG-2770.jpg)](https://postimg.cc/bDm6nT6q)
+
+[![IMG-2772.jpg](https://i.postimg.cc/wMB1S74K/IMG-2772.jpg)](https://postimg.cc/BLdZFQGN)

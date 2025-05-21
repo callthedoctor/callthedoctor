@@ -1,4 +1,4 @@
-spacedogs + dogsdogs + roardogs + prince charmont x gellert grindelwald glazer explodes into a million peices
+huge wip im just lazy to finish
 
 <p align="center" width="100%"><a href=https://rentry.co/H4NN1BALLECTER>rentry</a>
 <p align="center" width="100%"><a href=https://spacedogs.atabook.org>atabook</a>

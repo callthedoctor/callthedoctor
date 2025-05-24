@@ -8,7 +8,7 @@
     
 </p>
 
-<p align="center" width="100%">── .✦ <img width="1%" src="https://files.catbox.moe/t016zc.webp">
+<p align="center" width="100%"><img width="3%" src="https://files.catbox.moe/t016zc.webp">
 
 <div id="header" align="center">
 

@@ -8,5 +8,4 @@ huge wip im just lazy to finish
 
 <div id="header" align="center">
 
-[![img](https://files.catbox.moe/j93pil.png)‎](https://rentry.co/H4NN1BALLECTER/)[![img](https://files.catbox.moe/uxm4vw.png)‎](https://spacedogs.atabook.org/)[![img](https://files.catbox.moe/352nwh.png)‎](https://pronouns.cc/@hanniballecter/)⠀⠀
-  
+[![img](https://files.catbox.moe/7n5p4x.png)](https://rentry.co/H4NN1BALLECTER)⠀⠀⠀[![img](https://files.catbox.moe/5i4y6p.png)‎](https://spacedogs.atabook.org/)⠀⠀⠀[![img](https://files.catbox.moe/r238p4.png)](https://pronouns.cc/@hanniballecter)

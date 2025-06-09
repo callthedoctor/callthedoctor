@@ -4,7 +4,7 @@
 
 
 <p align="center" width="100%">
-    <img width="70%" src="https://files.catbox.moe/6q8jzw.png">
+    wip
     
 </p>
 

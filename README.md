@@ -7,9 +7,9 @@
     
 </p>
 
-<p align="center" width="100%"><img width="3%" src="https://files.catbox.moe/t016zc.webp">
+<p align="center" width="100%"><img width="3%" src="https://files.catbox.moe/m5a488.gif">
 
 <div id="header" align="center">
 
 
-[![img](https://files.catbox.moe/9czc44.png)](https://rentry.co/williamfranklingraham)⠀⠀⠀[![img](https://files.catbox.moe/m87osf.png)‎](https://spacedogs.atabook.org/)⠀⠀⠀[![img](https://files.catbox.moe/nz1u1l.png)](https://pronouns.cc/@hanniballecter)⠀⠀⠀[![img](https://files.catbox.moe/90mqhg.png)](https://lokilaufeys0n.straw.page/)
+[![img](https://files.catbox.moe/rndrye.png)](https://rentry.co/williamfranklingraham)⠀⠀⠀[![img](https://files.catbox.moe/0vdxsp.png)‎](https://spacedogs.atabook.org/)⠀⠀⠀[![img](https://files.catbox.moe/2spuyl.png)](https://pronouns.cc/@hanniballecter)⠀⠀⠀[![img](https://files.catbox.moe/gy1kyg.png)](https://lokilaufeys0n.straw.page/)

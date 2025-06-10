@@ -12,4 +12,4 @@
 <div id="header" align="center">
 
 
-[![img](https://files.catbox.moe/7n5p4x.png)](https://rentry.co/williamfranklingraham)⠀⠀⠀[![img](https://files.catbox.moe/5i4y6p.png)‎](https://spacedogs.atabook.org/)⠀⠀⠀[![img](https://files.catbox.moe/r238p4.png)](https://pronouns.cc/@hanniballecter)
+[![img](https://files.catbox.moe/9czc44.png)](https://rentry.co/williamfranklingraham)⠀⠀⠀[![img](https://files.catbox.moe/m87osf.png)‎](https://spacedogs.atabook.org/)⠀⠀⠀[![img](https://files.catbox.moe/nz1u1l.png)](https://pronouns.cc/@hanniballecter)⠀⠀⠀[![img](https://files.catbox.moe/90mqhg.png)](https://lokilaufeys0n.straw.page/)

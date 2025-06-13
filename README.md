@@ -3,7 +3,7 @@
 
 
 <p align="center" width="100%">
-    <img src="wip">
+    <img src="https://files.catbox.moe/iwvcmq.png">
     
 </p>
 

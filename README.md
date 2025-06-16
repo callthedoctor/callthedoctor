@@ -5,14 +5,15 @@
 <p align="center"> 
 
 <p align="center" width="100%">
-    <img src="https://i.postimg.cc/Njj4Mj0t/Untitled1012-20250616172228.png">
+    <img src="https://i.postimg.cc/J4HyQyzK/Untitled1012-20250616173825.png">
     
 </p>
 
 
 <div id="header" align="center">
 
-[![img](https://files.catbox.moe/ds3h2l.png)](https://rentry.co/williamfranklingraham)⠀⠀⠀[![img](https://files.catbox.moe/9y6cvf.png)‎](https://spacedogs.atabook.org/)⠀⠀⠀
+[![img](https://files.catbox.moe/ds3h2l.png)](https://rentry.co/williamfranklingraham)⠀
+⠀⠀[![img](https://files.catbox.moe/9y6cvf.png)‎](https://spacedogs.atabook.org/)⠀⠀⠀
 [![img](https://files.catbox.moe/9d972k.png)](https://pronouns.cc/@hanniballecter)⠀⠀
 
 

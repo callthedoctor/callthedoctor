@@ -18,7 +18,3 @@
 [![IMG-3456.gif](https://i.postimg.cc/Nf7Zz5H6/IMG-3456.gif)](https://postimg.cc/rKshdygs)
 
  
-
-[![IMG-3300.jpg](https://i.postimg.cc/k51S3BTV/IMG-3300.jpg)](https://postimg.cc/Tyb1nYMG)
-
-this is NOT free skin to use 😅😅 

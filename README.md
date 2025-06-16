@@ -2,7 +2,7 @@
 
 
 <p align="center" width="100%">
-    <img src="https://i.postimg.cc/PJZ1h43h/Untitled87-20250613230033.png">
+    <img src="https://i.postimg.cc/Njj4Mj0t/Untitled1012-20250616172228.png">
     
 </p>
 
@@ -19,6 +19,4 @@
 
 [![IMG-3300.jpg](https://i.postimg.cc/k51S3BTV/IMG-3300.jpg)](https://postimg.cc/Tyb1nYMG)
 
-dont color pick my skin pls i will explode
-
-block this person or wtv
+this is NOT free skin to use 😅😅 

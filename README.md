@@ -1,7 +1,7 @@
 <p align="center" width="100%"> <img src="https://komarev.com/ghpvc/?username=callthedoctor&label=✦&color=140f06">
 
 <p align="center"> 
-<tt><i>" Noa, you’re different. I like you. "</i></tt>
+<tt><i>revamping</i></tt>
 <p align="center"> 
 
 <p align="center" width="100%">

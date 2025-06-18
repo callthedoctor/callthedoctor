@@ -1,7 +1,7 @@
 <p align="center" width="100%"> <img src="https://komarev.com/ghpvc/?username=callthedoctor&label=✦&color=140f06">
 
 <p align="center"> 
-<tt><i>^_^</i></tt>
+<tt><i>imagine chris hemsworth here w glasses idk</i></tt>
 <p align="center"> 
 
 <p align="center" width="100%">

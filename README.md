@@ -14,6 +14,6 @@
 
 [![img](https://files.catbox.moe/x01bg7.png)](https://rentry.co/brendanstevekemp)⠀
 [![img](https://files.catbox.moe/142fs6.png)‎](https://spacedogs.atabook.org/)⠀⠀⠀⠀
-[![IMG-3456.gif](https://files.catbox.moe/ss2k93.png)](https://pronouns.cc/@hanniballecter)
+[![IMG-3456.gif](https://files.catbox.moe/ss2k93.png)](https://pronouns.cc/@brendanstevekemp)
 
  

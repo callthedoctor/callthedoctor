@@ -1,11 +1,11 @@
 <p align="center" width="100%"> <img src="https://komarev.com/ghpvc/?username=callthedoctor&label=✦&color=140f06">
 
 <p align="center"> 
-<tt><i>imagine chris hemsworth here w glasses ok</i></tt>
+<tt><i>" i love you buddy. "</i></tt>
 <p align="center"> 
 
 <p align="center" width="100%">
-    <img src="https://i.postimg.cc/WbQhN9hp/Untitled93-20250630224417.png">
+    <img src="https://i.postimg.cc/sgGc00Zp/IMG-7537.jpg">
     
 </p>
 

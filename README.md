@@ -3,6 +3,7 @@
 <p align="center"> 
 <tt><i>" i love you buddy. "</i></tt>
 <p align="center"> 
+tjis part is a wip (i just dont know what to put yet)
 
 <p align="center" width="100%">
     <img src="https://i.postimg.cc/sgGc00Zp/IMG-7537.jpg">

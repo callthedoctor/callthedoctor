@@ -17,5 +17,4 @@
 [![img](https://files.catbox.moe/142fs6.png)‎](https://spacedogs.atabook.org/)⠀⠀⠀⠀
 [![IMG-3456.gif](https://files.catbox.moe/ss2k93.png)](https://pronouns.cc/@brendanstevekemp)
 
-
-[![IMG-4070.jpg](https://i.postimg.cc/T2mdbGww/IMG-4070.jpg)](https://postimg.cc/bdyfX71c)
+[![IMG-4070.jpg](https://i.postimg.cc/wj4qYQFy/IMG-4070.jpg)](https://postimg.cc/w1J8hJCg)

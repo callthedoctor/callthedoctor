@@ -8,7 +8,7 @@
 
 
 <p align="center" width="100%">
-    <img src="https://files.catbox.moe/44mq96.png">
+    <img src="https://i.postimg.cc/Dz7YWhTB/Untitled1052-20250721170249.png">
     
 </p>
 
@@ -19,4 +19,4 @@
 [![img](https://files.catbox.moe/142fs6.png)‎](https://spacedogs.atabook.org/)⠀⠀⠀⠀
 [![IMG-3456.gif](https://files.catbox.moe/ss2k93.png)](https://pronouns.cc/@brendanstevekemp)
 
-[![IMG-4070.jpg](https://i.postimg.cc/wj4qYQFy/IMG-4070.jpg)](https://postimg.cc/w1J8hJCg)
+![IMG-4070.jpg](https://i.postimg.cc/TYD8HPLp/IMG-3463.jpg)

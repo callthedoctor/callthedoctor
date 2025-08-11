@@ -1,14 +1,13 @@
 <p align="center" width="100%"> <img src="https://komarev.com/ghpvc/?username=callthedoctor&label=✦&color=140f06">
 
 <p align="center"> 
-<tt><i>" if　　looks　　could　　kill　　you'd　　be　　a　　murderer ,</i></tt>
+<tt><i>" the boy, the boy's in love. " /𝑳</i></tt>
     <p align="center">
-<tt><i>　　or　　maybe　　just　　a　　whore　　.　　" /𝑳</i></tt>
-<p align="center"> 
+
 
 
 <p align="center" width="100%">
-    <img src="https://i.postimg.cc/Dz7YWhTB/Untitled1052-20250721170249.png">
+    <img src="https://i.postimg.cc/yd28cJxr/Untitled1063-20250811201201.png">
     
 </p>
 

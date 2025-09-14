@@ -10,6 +10,5 @@ steve   ⠀ᵒʳ  ⠀roa ⠀⠀⠀.⠀⠀⠀⠀semi⠀⠀⠀inactive⠀(
 <p align="center"> 
 ⠀c⠀⠀+⠀⠀h⠀⠀⠀ᵃⁿᵈ⠀⠀⠀int⠀⠀freely⠀⠀,⠀⠀⠀do not copy⠀⠀
 <p align="center"> 
-stvkmp⠀⠀on tiktok⠀⠀⠀⠀⠀⠀rdj and seb enthusiast⠀⠀><
-
+stvkmp⠀⠀on tiktok⠀⠀⠀⠀⠀⠀rdj and seb stan enthusiast⠀
 </p>

@@ -12,3 +12,6 @@ steve   ⠀ᵒʳ  ⠀roa ⠀⠀⠀.⠀⠀⠀⠀semi⠀⠀⠀inactive⠀(
 <p align="center"> 
 stvkmp⠀⠀on tiktok⠀⠀⠀/⠀⠀⠀rdj and seb stan enthusiast⠀
 </p>
+
+<p align="center" width="100%">
+<img src="https://i.postimg.cc/nhSY9kP3/IMG-6148.png"><img src="https://i.postimg.cc/SQG9zdXG/IMG-6149.png"><img src="https://i.postimg.cc/BnPtNBvK/IMG-6150.png">

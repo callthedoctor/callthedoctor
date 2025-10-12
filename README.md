@@ -7,7 +7,7 @@
 </p>
 
 <p align="center"> 
-steve   ⠀ᵒʳ  ⠀roa ⠀⠀⠀.⠀⠀⠀⠀semi⠀⠀⠀inactive⠀( ? )
+steve(n)   ⠀ᵒʳ  ⠀roa ⠀⠀⠀.⠀⠀⠀⠀semi⠀⠀⠀inactive⠀( ? )
 <p align="center"> 
 ⠀c⠀⠀+⠀⠀h⠀⠀⠀ᵃⁿᵈ⠀⠀⠀int⠀⠀freely⠀⠀,⠀⠀⠀do not copy⠀⠀
 <p align="center"> 

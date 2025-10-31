@@ -11,7 +11,7 @@ steve(n)   ⠀ᵒʳ  ⠀roa ⠀⠀⠀.⠀⠀⠀⠀semi⠀⠀⠀inactive�
 <p align="center"> 
 ⠀c⠀⠀+⠀⠀h⠀⠀⠀ᵃⁿᵈ⠀⠀⠀int⠀⠀freely⠀⠀,⠀⠀⠀do not copy⠀⠀
 <p align="center"> 
-stvkmp⠀⠀on tiktok⠀⠀⠀/⠀⠀⠀rdj , seb stan , cevans enthusiast⠀
+stvkmp⠀⠀on tiktok⠀⠀⠀/⠀⠀⠀rdj , cevans enthusiast⠀
 </p>
 
 

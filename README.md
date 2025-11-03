@@ -1,4 +1,4 @@
-<p align="center" width="100%"> <img src="https://komarev.com/ghpvc/?username=callthedoctor&label=/truebeliever&color=140f06">
+<p align="center" width="100%"> <img src="https://komarev.com/ghpvc/?username=callthedoctor&label=/chancesare&color=140f06">
 
 <p align="center" width="100%">
     <img src="https://i.postimg.cc/Cx1wh3Hr/IMG-6439.gif">

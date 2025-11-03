@@ -16,4 +16,4 @@ stvkmp⠀⠀on tiktok⠀⠀⠀/⠀⠀⠀rdj , chris evans enthusiast⠀
 
 
 <p align="center" width="100%">
-<img src="https://i.postimg.cc/j5zXFd2V/IMG-6443.png"><img src="https://i.postimg.cc/nzMmqSJQ/IMG-6441.png"><img src="https://i.postimg.cc/h4zZ9ccr/IMG-6442.png">
+<img src="https://i.postimg.cc/brbCx9cP/Untitled1096-20251103112107.png"><img src="https://i.postimg.cc/SQttwjNT/Untitled1096-20251103111910.png"><img src="https://i.postimg.cc/d1gNZSX1/Untitled1096-20251103112155.png">

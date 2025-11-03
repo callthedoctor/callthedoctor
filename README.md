@@ -11,7 +11,7 @@ steve(n)   ⠀ᵒʳ  ⠀roger  ⠀⠀⠀.⠀⠀⠀⠀semi⠀⠀⠀active
 <p align="center"> 
 ⠀c⠀⠀+⠀⠀h⠀⠀⠀ᵃⁿᵈ⠀⠀⠀int⠀⠀freely⠀⠀,⠀⠀⠀do not copy⠀⠀
 <p align="center"> 
-stvkmp⠀⠀on tiktok⠀⠀⠀/⠀⠀⠀rdj , chris evans enthusiast⠀
+stvkmp⠀⠀on⠀⠀tiktok⠀⠀⠀/⠀⠀⠀rdj , chris evans enthusiast⠀
 </p>
 
 

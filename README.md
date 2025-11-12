@@ -1,8 +1,5 @@
 <p align="center" width="100%"> <img src="https://komarev.com/ghpvc/?username=callthedoctor&label=⌖&color=140f06">
 
-<p align="center" width="100%">
-    <img src="https://i.postimg.cc/8PrYvGY8/Untitled1115-20251112171632.png">
-
     
 </p>
 

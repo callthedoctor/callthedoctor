@@ -1,5 +1,7 @@
 <p align="center" width="100%"> <img src="https://komarev.com/ghpvc/?username=callthedoctor&label=⌖&color=140f06">
 
+<p align="center"> 
+<img src="https://i.postimg.cc/ZKftcbgB/IMG-6791.png">
 
 </p>
 
@@ -13,4 +15,4 @@ stvkmp⠀⠀on⠀⠀tiktok⠀⠀⠀/⠀⠀⠀rdj , chris evans enthusiast⠀
 
 
 <p align="center" width="100%">
-<img src="https://i.postimg.cc/Kc3P0RCb/IMG-6786.png"><img src="https://i.postimg.cc/Kc3P0RC2/IMG-6785.png"><img src="https://i.postimg.cc/G3TFXH6w/IMG-6784.png">
+<img src="https://i.postimg.cc/VsM339V3/Untitled1096-20251117162340.png"><img src="https://i.postimg.cc/d0LfnGCN/Untitled1096-20251117173348.png"><img src="https://i.postimg.cc/rpX4YkRm/Untitled1096-20251117162357.png">

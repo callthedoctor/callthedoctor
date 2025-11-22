@@ -10,7 +10,7 @@ steve(n)   ⠀ᵒʳ  ⠀roger  ⠀⠀⠀.⠀⠀⠀⠀semi⠀⠀⠀active
 <p align="center"> 
 ⠀c⠀⠀+⠀⠀h⠀⠀⠀ᵃⁿᵈ⠀⠀⠀int⠀⠀freely⠀⠀,⠀⠀⠀do not copy⠀⠀
 <p align="center"> 
-used⠀⠀for⠀⠀pt⠀⠀purposes⠀⠀⠀/⠀⠀⠀rdj enthusiast⠀
+used⠀⠀for⠀⠀pt⠀⠀purposes⠀⠀⠀/⠀⠀⠀rdj enthusiast⠀, ,
 </p>
 
 

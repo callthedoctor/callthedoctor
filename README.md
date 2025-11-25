@@ -10,7 +10,8 @@ steve(n)   ⠀ᵒʳ  ⠀roger  ⠀⠀⠀.⠀⠀⠀⠀semi⠀⠀⠀active
 <p align="center"> 
 ⠀c⠀⠀+⠀⠀h⠀⠀⠀ᵃⁿᵈ⠀⠀⠀int⠀⠀freely⠀⠀,⠀⠀⠀do not copy⠀⠀
 <p align="center"> 
-used⠀⠀for⠀⠀pt⠀⠀purposes⠀⠀⠀/⠀⠀⠀rdj enthusiast⠀, ,
+stvkmp⠀⠀on⠀⠀tiktok⠀⠀⠀⠀.⠀⠀⠀rdj⠀⠀enthusiast⠀, ,
+  ⠀⠀⠀⠀⠀
 </p>
 
 

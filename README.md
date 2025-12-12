@@ -8,3 +8,5 @@ c⠀⠀+⠀⠀h⠀⠀⠀ᵃⁿᵈ⠀⠀⠀int⠀⠀freely⠀ ( unless⠀stated )
 do⠀⠀not⠀⠀copy⠀⠀or⠀⠀upload⠀⠀any⠀⠀skins⠀⠀.⠀.
   <p align="center"> 
   stvkmp⠀⠀on⠀⠀tiktok⠀ /⠀⠀ask for dc⠀++ other socials
+
+  <img src="https://i.postimg.cc/kXBDdsw9/IMG-7143.jpg">

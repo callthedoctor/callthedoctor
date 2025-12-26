@@ -7,4 +7,5 @@ c⠀⠀+⠀⠀h⠀⠀⠀ᵃⁿᵈ⠀⠀⠀int⠀⠀freely⠀ ( unless⠀stated )
   <p align="center"> 
 do⠀⠀not⠀⠀copy⠀⠀or⠀⠀upload⠀⠀any⠀⠀skins⠀⠀.⠀.
   <p align="center"> 
+  stvkmp⠀⠀on⠀⠀tiktok⠀⠀,⠀⠀ask for discord⠀
 

@@ -6,6 +6,6 @@ steve⠀⠀(⠀no⠀⠀fixed⠀⠀name⠀)
   <p align="center">
 minor⠀⠀⠀13-15⠀⠀⠀⠀basic⠀dni
       <p align="center">
-stvkmp⠀⠀⠀⠀⠀⠀on⠀⠀⠀⠀⠀tiktok
 
-
+<p align="center" width="100%">
+<img src="https://i.postimg.cc/zvRPJfJt/IMG-7983.gif"><img src="https://i.postimg.cc/cC85sJsP/IMG-7984.gif"><img src="https://i.postimg.cc/NFrPg0gS/IMG-7985.gif">

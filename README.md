@@ -1,4 +1,4 @@
-<p align="center" width="100%"> <img src="https://komarev.com/ghpvc/?username=callthedoctor&label=🐾&color=140f06">
+<p align="center" width="100%"> <img src="https://komarev.com/ghpvc/?username=callthedoctor&label=𓏶&color=140f06">
 
 <p align="center" width="100%">
 <img src="https://i.postimg.cc/kMKRrHBw/IMG-6596.png"><img src=https://i.postimg.cc/j2zXZVYF/IMG-1962.png">

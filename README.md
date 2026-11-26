@@ -18,4 +18,4 @@
 
 c+h⠀⠀&⠀⠀int⠀⠀freely
 
-  [atabook](https://spideyskulls.atabook.org) ⠀⠀ [rentry](https://rentry.co/diarmute)  ⠀⠀ [tiktok](https://www.tiktok.com/@stvkmp)  ⠀⠀ [sharespot](https://www.sharespotapp.com/deerantlers) 
+  [atabook](https://spideyskulls.atabook.org) ⠀⠀ [rentry](https://rentry.co/FrancisDavidCastle)  ⠀⠀ [tiktok](https://www.tiktok.com/@stvkmp)  ⠀⠀ [sharespot](https://www.sharespotapp.com/deerantlers) 
